@@ -1,4 +1,3 @@
-# Un-estudio-de-polispermia-en-abul-n
 
 # Un estudio de polispermia en abulón
 Stephano J. L. 1992.
